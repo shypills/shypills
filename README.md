@@ -17,5 +17,5 @@
   $\text{\color{#8E090E}I prefer whispers. Whisper me or Ill klil myself}$\
 ⠀\
   [rentry](https://rentry.co/bylerhate)⠀⠀ $\text{\color{#8E090E}✦}$⠀⠀ [pronouns.cc](https://pronouns.cc/@deathcure)\
-  sign⠀ [atabook](https://andreil.atabook.org/)⠀ $\text{\color{#8E090E}!}$
+  $\text{\color{#8E090E}sign}$⠀ [atabook](https://andreil.atabook.org/)⠀ $\text{\color{#8E090E}!}$
 </div>
