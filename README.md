@@ -15,6 +15,6 @@
 
   <sub>$\text{\color{#8E090E}C+H is always encouraged.}$\
 ⠀\
-  [rentry](https://rentry.co/bylerhate) (wip)⠀⠀ $\text{\color{#8E090E}✦}$⠀⠀ [pronouns.cc](https://pronouns.cc/@deathcure)\
+  [rentry](https://rentry.co/bylerhate)⠀⠀ $\text{\color{#8E090E}✦}$⠀⠀ [pronouns.cc](https://pronouns.cc/@deathcure)\
   sign⠀ [atabook](https://andreil.atabook.org/)⠀ $\text{\color{#8E090E}!}$
 </div>
