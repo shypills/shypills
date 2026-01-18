@@ -1,10 +1,10 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=party-killers&color=4D0F10&label=+++ALL I NEEDˏ⠀+++★+++)
+![](https://komarev.com/ghpvc/?username=party-killers&color=932610&label=+++ALL I NEED⠀+++𓏏𓏏+++)
 \
 \
 \
-![](https://files.catbox.moe/mcmjiv.png)
+![](https://files.catbox.moe/omt444.png)
 \
 \
 \
