@@ -16,6 +16,8 @@ $\text{\color{#28263E}i also change my github a LOT since i often}$\
 $\text{\color{#28263E}get bored of my theme within days.}$\
 $\text{\color{#28263E}i know it confuses people a lot ( • ᴖ • ｡)}$\
 \
+$\text{\color{#222244}profile credits : @desirednull on x}$\
+\
 $\text{\color{#E9E8B8}۶ৎ ⠀ ⠀⠀౿⠀⠀，}$\
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
