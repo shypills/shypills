@@ -1,22 +1,22 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=party-killers&color=7494AD&label=+++string theory⠀+++𓏏𓏏+++)
+![](https://komarev.com/ghpvc/?username=party-killers&color=EF2324&label=+++string theory⠀+++𓏏𓏏+++)
 \
 \
-$\text{\color{#303A55}a͟n͟d͟r͟e͟w͟}$\
-$\text{\color{#31355A}he  ノ  him}$\
+$\text{\color{#222244}a͟n͟d͟r͟e͟w͟}$\
+$\text{\color{#222244}he  ノ  him}$\
 \
-$\text{\color{#262C42}unlabeled  𓏵  fictionkin}$\
-$\text{\color{#262C42}c+h strongly encouraged ◟}$\
+$\text{\color{#28263E}unlabeled  𓏵  fictionkin}$\
+$\text{\color{#28263E}c+h strongly encouraged ◟}$\
 \
-$\text{\color{#313757}(W2I : i'm mostly offtab + i}$\
-$\text{\color{#313757}rarely check public chat)}$\
+$\text{\color{#222244}(W2I : i'm mostly offtab + i}$\
+$\text{\color{#222244}rarely check public chat)}$\
 \
-$\text{\color{#262C42}i also change my github a LOT since i often}$\
-$\text{\color{#262C42}get bored of my theme within days.}$\
-$\text{\color{#262C42}i know it confuses people a lot ( • ᴖ • ｡)}$\
+$\text{\color{#28263E}i also change my github a LOT since i often}$\
+$\text{\color{#28263E}get bored of my theme within days.}$\
+$\text{\color{#28263E}i know it confuses people a lot ( • ᴖ • ｡)}$\
 \
-$\text{\color{#6F8FA4}۶ৎ ⠀ ⠀⠀౿⠀⠀，}$\
+$\text{\color{#E9E8B8}۶ৎ ⠀ ⠀⠀౿⠀⠀，}$\
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31gegr4vafskftvo3ndfhvmipwoy&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=90270e&bar_color_cover=false">
