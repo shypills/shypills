@@ -9,14 +9,11 @@ $\text{\color{#222244}he  ノ  him}$\
 $\text{\color{#28263E}unlabeled  𓏵  fictionkin}$\
 $\text{\color{#28263E}c+h strongly encouraged ◟}$\
 \
-$\text{\color{#222244}(W2I : i'm mostly offtab + i}$\
+$\text{\color{#222244}(w2i : i'm mostly offtab + i}$\
 $\text{\color{#222244}rarely check public chat)}$\
 \
-$\text{\color{#28263E}i also change my github a LOT since i often}$\
-$\text{\color{#28263E}get bored of my theme within days.}$\
-$\text{\color{#28263E}i know it confuses people a lot ( • ᴖ • ｡)}$\
+[rentry](https://rentry.co/fishybucket)  [ata](https://orbitalduo.atabook.org/)  [prns.cc](https://pronouns.cc/@orbitalduo)\
 \
-$\text{\color{#222244}profile credits : @desirednull on x}$\
 \
 $\text{\color{#E9E8B8}۶ৎ ⠀ ⠀⠀౿⠀⠀，}$\
  <p align="center">
