@@ -8,10 +8,10 @@ $\text{\color{#49E625}a͟n͟d͟r͟e͟w͟}$\
 $\text{\color{#49E625}he  ノ  him}$\
 \
 $\text{\color{#1FD04C}unlabeled  𓏵  fictionkin}$\
-$\text{\color{#1FD04C}c+h strongly encouraged ◟}$\
+$\text{\color{#1FD04C}always open to c+h}$\
 \
-$\text{\color{#49E625}(w2i : i'm mostly offtab + i}$\
-$\text{\color{#49E625}rarely check public chat)}$\
+$\text{\color{#49E625}w2i — almost always offtab}$\
+$\text{\color{#49E625}or sign my ata instead}$\
 \
 [rentry](https://rentry.co/fishybucket)  [ata](https://orbitalduo.atabook.org/)  [prns.cc](https://pronouns.cc/@orbitalduo)\
 \
