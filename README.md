@@ -13,7 +13,7 @@ $\text{\color{#1FD04C}always open to c+h}$\
 $\text{\color{#49E625}w2i — almost always offtab}$\
 $\text{\color{#49E625}or sign my ata instead}$\
 \
-[rentry](https://rentry.co/fishybucket)  [ata](https://orbitalduo.atabook.org/)  [prns.cc](https://pronouns.cc/@alden)\
+[rentry](https://rentry.co/fishybucket)  [ata](https://aldennci.atabook.org/)  [prns.cc](https://pronouns.cc/@alden)\
 \
 \
 $\text{\color{#D7F861}۶ৎ ⠀ ⠀⠀౿⠀⠀，}$\
