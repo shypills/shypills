@@ -1,22 +1,22 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=party-killers&color=9A04EA&label=+++volta⠀+++𓏏𓏏+++)
+![](https://komarev.com/ghpvc/?username=party-killers&color=813E69&label=+++volta⠀+++𓏏𓏏+++)
 \
 \
 \
-$\text{\color{#49E625}a͟n͟d͟r͟e͟w͟}$\
-$\text{\color{#49E625}he  ノ  him}$\
+$\text{\color{#653A4B}a͟n͟d͟r͟e͟w͟}$\
+$\text{\color{#653A4B}he  ノ  him}$\
 \
-$\text{\color{#1FD04C}unlabeled  𓏵  fictionkin}$\
-$\text{\color{#1FD04C}always open to c+h}$\
+$\text{\color{#4B2C3E}unlabeled  𓏵  fictionkin}$\
+$\text{\color{#4B2C3E}always open to c+h}$\
 \
-$\text{\color{#49E625}w2i — almost always offtab}$\
-$\text{\color{#49E625}or sign my ata instead}$\
+$\text{\color{#653A4B}w2i — almost always offtab}$\
+$\text{\color{#653A4B}or sign my ata instead}$\
 \
 [rentry](https://rentry.co/aldenprice)  [ata](https://aldennci.atabook.org/)  [prns.cc](https://pronouns.cc/@alden)\
 \
 \
-$\text{\color{#D7F861}۶ৎ ⠀ ⠀⠀౿⠀⠀，}$\
+$\text{\color{#813E69} ⠀⋆ ⠀ ⠀ ۶ৎ  ⠀ ⠀，}$\
 \
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
