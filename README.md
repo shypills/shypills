@@ -18,13 +18,12 @@ $\text{\color{#617C87}── ⠀ ✶ ⠀ ──}$\
 \
 \
 [rentry](https://rentry.co/aldenprice)   ‣   [ata](https://rgb.atabook.org/)   ‣   [prns.cc](https://pronouns.cc/@alden)\
-[shared rentry](https://rentry.co/_rgbtrio)   ‣   [profile credits](https://www.tumblr.com/devquot/805024733347381248/dev-kier-and-boosfer-matching-graphics)
+[shared rentry](https://rentry.co/_rgbtrio)   ‣   [profile credits](https://www.tumblr.com/devquot/805024733347381248/dev-kier-and-boosfer-matching-graphics)\
 \
 \
-\
-\
+$\text{\color{#617C87}── ⠀ ✶ ⠀ ──}$\
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31gegr4vafskftvo3ndfhvmipwoy&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=90270e&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31gegr4vafskftvo3ndfhvmipwoy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=a7d67b&bar_color_cover=false">
   </a>
 </p>
