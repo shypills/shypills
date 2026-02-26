@@ -10,7 +10,7 @@ $\text{\color{#A7D67B}he⠀ノ⠀him 𓈒}$\
 $\text{\color{#97CE63}unlabeled  𓏵  fictionkin}$\
 $\text{\color{#97CE63}c+h always encouraged}$\
 \
-$\text{\color{#A7D67B}w2i — almost always offtab}$\
+$\text{\color{#A7D67B}w2i — i'm primarily offtab}$\
 $\text{\color{#A7D67B}or sign my ata instead}$\
 \
 \
