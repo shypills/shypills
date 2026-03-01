@@ -10,7 +10,7 @@
 $\text{\color{#BB468D}──────── ⠀✶⠀ ────────}$\
 \
 \
-<sub>[rentry](https://rentry.co/andrewdoe)      [ata](https://rgb.atabook.org/)      [prns.cc](https://pronouns.cc/@alden)\
+<sub>[rentry](https://rentry.co/andrewdoe)      [ata](https://daxesh.atabook.org/)      [prns.cc](https://pronouns.cc/@alden)\
 [shared rentry](https://rentry.co/_rgbtrio)</sub>\
 ⠀
 ⠀
