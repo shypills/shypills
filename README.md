@@ -7,7 +7,7 @@
 \
 $\text{\color{#A73942}──────── ⠀✶⠀ ────────}$\
 \
-<sub>[rentry](https://rentry.co/andrewdoe)      [atabook](https://sundozed.atabook.org/)      [pronouns.cc](https://pronouns.cc/@alden)</sub>\
+<sub>[rentry](https://rentry.co/andrewdoe)      [atabook](https://sundozed.atabook.org/)      [pronouns.cc](https://pronouns.cc/@scamduo)</sub>\
 ⠀
 ⠀
 
