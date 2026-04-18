@@ -1,20 +1,20 @@
 <div align="center">
   
   
-![](https://komarev.com/ghpvc/?username=shypills&color=A73942&label=+++visitors+++𓈒+++)\
+![](https://komarev.com/ghpvc/?username=shypills&color=F16A4A&label=+++visitors+++𓈒+++)\
 \
-<sub>$\text{\color{#DE8B6D}andrew  ou  cody}$\
-$\text{\color{#DE8B6D}hehim  fifteen  iayor}$\
+<sub>$\text{\color{#FEE8C3}andrew  ou  cody}$\
+$\text{\color{#FEE8C3}hehim  fifteen  iayor}$\
 \
-$\text{\color{#DE8B6D}my public chat is almost always off}$\
-$\text{\color{#DE8B6D}therefore i prefer whispers for interactions}$\
-$\text{\color{#DE8B6D}however i am extremely open to c+h whenever}$\
+$\text{\color{#FEE8C3}my public chat is almost always off}$\
+$\text{\color{#FEE8C3}therefore i prefer whispers for interactions}$\
+$\text{\color{#FEE8C3}however i am extremely open to c+h whenever}$\
 \
-$\text{\color{#A73942}──────── ⠀✶⠀ ────────}$\
+$\text{\color{#F16A4A}──────── ⠀✶⠀ ────────}$\
 \
 [rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [pronouns.cc](https://pronouns.cc/@scamduo)\
 \
-$\text{\color{#A73942}aka}$  [shypills](https://github.com/shypills)</sub>\
+$\text{\color{#F16A4A}aka}$  [shypills](https://github.com/shypills)</sub>\
 ⠀
 ⠀
 
